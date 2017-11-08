@@ -1,2 +1,2 @@
 # hello-world
-These place looks like shit house, y right
+These place looks like shit house, y r right
